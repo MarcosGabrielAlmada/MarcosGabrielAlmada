@@ -1,4 +1,4 @@
-## Hi, two things 
+## Hi, two things ✌️
 
-1. Music
-2. Music (but second)
+1. Listen to Music 🎸
+2. And listen to the Fucking Music, with F from Flaco Spinetta 🎵
